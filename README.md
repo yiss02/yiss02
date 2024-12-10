@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @yiss02
+- I'm student of ESIEE Paris
+- Working in development and applications,
+- Looking for a company for an apprenticeship so do not hesitate to contact me !
